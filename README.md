@@ -1,5 +1,5 @@
 #squirm aka best 
-mentiong cool ppl / followers because I'm bored ^^ 
+mentioning cool ppl / followers because I'm bored ^^ 
 lmk if there's typos I can't paste them anymore + I can't remember the usernames 
 
 ʟᴏᴏᴇʏ ⋆𖦹 🎪 🎈 Aminafklol
