@@ -1,44 +1,104 @@
-#squirm aka best 
-mentioning cool ppl / followers because I'm bored ^^ 
-lmk if there's typos I can't paste them anymore + I can't remember the usernames 
+#1 peak remix 
 
-ʟᴏᴏᴇʏ ⋆𖦹 🎪 🎈 Aminafklol
-
-𖤓 : 𝗖𝗹𝗮𝗿𝗸 ୨ ' ʙᴀɴɴʏ bannysuperman
-
-you and i whenthebellsgrieve
-
-ᯓ★ 𝙱𝐨𝚋𝐞𝚝𝐭𝚎 ݁ ˖Ი𐑼⋆ MsCarolynne
-
-kenzi z0mbiepup
-
-coalcarolynne
-
-cosmothepastryy
-
-theglitchedsystem
-
-marshberri
-
-primsebs
-
-twistedpastry
-
-Letsdosomemagicstuff
-
-salemsweetness
-
-Pupfetticake // idr
-
-twotimeyy
-
-Terfficore
-
-finnfxnn 
-
-sweettenshi
-
-stinkyrustyfork
+      ♡
+ 
+"Dancin (Krono Remix)
 
 
-i swear I'll add the anothers if I have more motivation ok thanks 
+
+
+(feat. Luvli)
+
+Get up on the floor
+Dancin' all night long
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin'
+
+All the time, my baby, you on my mind
+And I don't know why, yeah but the feeling is fine
+Can't you see, honey you are for me
+Oh we were meant to be
+Dancin' in the moonlight
+Gazing at the stars so bright
+Holding you until the sunrise
+Sleeping until the midnight
+
+Get up on the floor
+Dancin' all night long
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin'
+
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+
+Every time when I look in your eyes
+I smile with pride, happy that you're mine
+Joy in love, your love is true I know
+You are the best thing that has happened to me
+
+Get up on the floor
+Dancin' all night long
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin'
+
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+
+Get up on the floor
+Dancin' all night long
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin'
+Get up on the floor
+Dancin' all night long
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin' till the break of dawn
+Get up on the floor
+Dancin'
+
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+Dancin' is what to do
+Dancin's when I think of you
+Dancin's what clears my soul
+Dancin's what makes me whole
+
