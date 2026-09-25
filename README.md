@@ -34,7 +34,7 @@ twotimeyy
 
 Terfficore
 
-f1nnxfinn // idr
+finnfxnn 
 
 sweettenshi
 
